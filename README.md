@@ -1,2 +1,26 @@
 # cookBook-Shaoyi Jiang
  
+Here's a simple recipe for a classic Spaghetti Carbonara:
+
+Ingredients:
+
+12 ounces (340 grams) of spaghetti
+2 large eggs
+1 cup (about 100 grams) of grated Pecorino Romano cheese
+4 ounces (about 115 grams) of pancetta or guanciale, diced
+2 cloves of garlic, minced (optional)
+Salt and black pepper to taste
+Fresh parsley, chopped, for garnish (optional)
+Instructions:
+
+Cook the Pasta: Bring a large pot of salted water to a boil. Add the spaghetti and cook according to the package instructions until al dente. Reserve about 1/2 cup of pasta cooking water, then drain the spaghetti.
+
+Prepare the Sauce: While the pasta is cooking, whisk together the eggs, grated Pecorino Romano cheese, and a generous amount of black pepper in a bowl. This mixture will create a creamy sauce.
+
+Cook the Pancetta: In a large skillet, cook the diced pancetta over medium heat until it becomes crispy and golden brown. If you prefer, you can add minced garlic for extra flavor during the last minute of cooking, but it's optional.
+
+Combine the Pasta and Sauce: Once the pasta is drained, immediately add it to the skillet with the crispy pancetta (and garlic, if used). Toss the pasta and pancetta together to combine.
+
+Add the Egg Mixture: Remove the skillet from the heat. Quickly pour the egg and cheese mixture over the hot pasta. Toss everything together vigorously. If the mixture seems too thick, you can add a splash of the reserved pasta cooking water to achieve the desired creamy consistency.
+
+Serve: Garnish your Spaghetti Carbonara with chopped fresh parsley, more grated Pecorino Romano cheese, and an extra sprinkle of black pepper. Serve immediately while it's hot.
