@@ -8,7 +8,7 @@ Ingredients:
 2 large eggs
 1 cup (about 100 grams) of grated Pecorino Romano cheese
 4 ounces (about 115 grams) of pancetta or guanciale, diced
-2 cloves of garlic, minced (optional)
+3 cloves of garlic, minced (optional)
 Salt and black pepper to taste
 Fresh parsley, chopped, for garnish (optional)
 Instructions:
